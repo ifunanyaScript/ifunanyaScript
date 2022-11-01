@@ -1,6 +1,6 @@
 ### Hi there, my name if Ifunanya. 
 ###### Very warm welcome.
-![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
+![](https://tenor.com/view/youre-welcome-gif-25058970)
 
 
 <p align="center"> 
