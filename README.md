@@ -1,1 +1,5 @@
-![](https://hit.yhype.me/github/profile?user_id=91638505)
+### Hi there, my name if Ifunanya. 
+###### Very warm welcome.
+
+![](https://komarev.com/ghpvc/?username=your-github-username&color=brightgreen&style=plastic)
+
