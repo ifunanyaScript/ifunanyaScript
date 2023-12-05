@@ -26,7 +26,7 @@ Welcome to my GitHub profile! I'm a passionate React Developer with a rich histo
 
 Feel free to connect with me to discuss tech, gaming, swimming, or just about anything! Let's dive into new opportunities and create something amazing together.
 
-[LinkedIn](https://x.com/wildnwayward_) | [Twitter](https://www.linkedin.com/in/ifunanyascript)
+[LinkedIn](https://www.linkedin.com/in/ifunanyascript) | [Twitter](https://x.com/wildnwayward_)
 
 ---
 
